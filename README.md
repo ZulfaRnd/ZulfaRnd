@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Zulfa Rindi 
+- 👀 I’m interested in Design Graphic, Journalism & Broadcasting
+- 🌱 I’m currently learning Design Graphic & Broadcasting
